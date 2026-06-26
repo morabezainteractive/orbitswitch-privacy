@@ -22,4 +22,4 @@ We may update this policy occasionally. Changes will be posted on this page.
 
 ## Contact
 
-If you have any questions, contact us at: [o teu email]
+If you have any questions, contact us at: [morabezainteractive@gmail.com]
